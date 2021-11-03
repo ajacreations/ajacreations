@@ -1,5 +1,5 @@
-Changed my account to @anilectjose
-Https://github.com/anilectjose/
-Feel free to check my new account 😊
+Jst exploring GitHub. 
+
+Feel free to check my account 😊
 
 Thank you
